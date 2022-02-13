@@ -27,3 +27,6 @@ Belajar kelas Memulai Pemrograman dengan Java. (Progres 100%)
 
   * Mengerjakan ujian akhir untuk menilai kemahiran diri.
 ashiap 66 anti terror
+uuiuhu
+iyv;ugbyg;
+hjlbhvbgjvj
